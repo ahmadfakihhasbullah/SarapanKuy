@@ -8,3 +8,4 @@ fq juga sudah dong
 aku willian
 
 aku juga yoyoyoyoyoyo
+abdullah nama ayahnya fatimah ibundanya 
