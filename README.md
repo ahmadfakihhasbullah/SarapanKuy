@@ -1,3 +1,3 @@
 welcome to our projects
 
-ayo berkontribusi
+ayo berkontribusi ehhhhh akuu udah yaa
